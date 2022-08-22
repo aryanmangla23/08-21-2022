@@ -26,6 +26,8 @@ Me - Caring. Priscilla said im self-centered smh.
 
 Priscilla -  Persevering. Even though I doubt it a lot of times, I trust that she will always come back better. She said her mom calls her brave and she can't see herself as brave. She is brave, but being brave is half a story. And also she wasn't brave a majority of her life, while perseverance seems like something she is.
 
+Oh yea and also talked about like first semester stuff. Loss of friends hits hard. Being friends with ... and like keeping personal stuff out of it. Different relationship and stuff. Can't really talk bout it kay
+
 Depression talk and stuff finished. Worked more and priscilla took a nap for 40 minutes. 
 
 I left with joseph and claire while priscilla stayed behind to finish reading.
