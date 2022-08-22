@@ -41,3 +41,5 @@ Can't wait for sleepover on thursday night into friday sunrise at lhs D::DD:D. O
 hmm a song im kinda obsessed with. [1](https://open.spotify.com/track/1gOvzXkmOXZI5IcT2T10YI?si=ddb9f1c998f04bf7) [2](https://open.spotify.com/track/7zwn1eykZtZ5LODrf7c0tS?si=689930dda0af4fca) 
 
 11:22 - got a chance to apologize to ruiqi :DDDDDDD about not including him and stuff.
+
+I was going to say something kinda out of line, but really isn't. Genuine worriedness. **Shoulder**
