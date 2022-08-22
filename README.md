@@ -6,7 +6,9 @@ Next [Diary](https://aryanmangla23.github.io/08-22-2022/)
 
 Today was interesting.
 
-Woke up at 6:30. Got ready and stuff. 
+Slept at 4 am with shawn and priscilla just vibing in the vc for like 3 hours. i dont even remember what i did for 4 hours. Schedule, talking bout diary stuff i think?, and did a tiny amount of work. 
+
+Woke up at 6:30. Got ready and stuff. 2.5 hours of sleep nice.
 
 Went to library and worked till my counselor meeting at 10:30-12. Priscilla around 11. hmm it was very funny entrance. Before she entered, my counselor was asking me questions particularly about it, cuz it slipped his mind. So, I typed it to him instead of answering out loud. dat was kinda funny/stressful. I think my personal statement will be good and unique. But it will just be hard to transition each scene. And it will also be hard for me to write it. But, I think it is definitely a good theme.
 
