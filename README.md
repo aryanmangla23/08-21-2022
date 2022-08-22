@@ -33,3 +33,5 @@ I left with joseph and claire while priscilla stayed behind to finish reading.
 I worked a decent amount over there saying how much fun we had. Ate cicero's pizza with them and left at 9. Shawn came by as well with the boba :DDDD. 
 
 Can't wait for sleepover on thursday night into friday sunrise at lhs D::DD:D. Oh and it's spirit week for 1st week of school :D
+
+hmm a song im kinda obsessed with. [1](https://open.spotify.com/track/1gOvzXkmOXZI5IcT2T10YI?si=ddb9f1c998f04bf7) [2](https://open.spotify.com/track/7zwn1eykZtZ5LODrf7c0tS?si=689930dda0af4fca) 
